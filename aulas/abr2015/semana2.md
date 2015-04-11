@@ -11,7 +11,7 @@ Adicionamos o movimento de [Levar o Tigre à Montanha](http://ck-language.s3.ama
 
 Foi adicionada também, uma proposta de prática que pode ser acedida na [página principal](/index.html) e que inclui estes dois movimentos. 
 
-Segue-se o material de reflexão para esta semana.
+Segue-se o material de reflexão e estudo para esta semana.
 
 ##1
 
@@ -41,7 +41,7 @@ Se este movimento é novo para si pode [descarregar aqui o vídeo](http://ck-lan
 
 Este movimento, deve ser executado dentro do vosso eixo, mantendo uma atenção como se estivessem numa torre ou numa elevação e conseguissem observar todo o terreno à vossa volta. 
 
-Aqui é explorado o eixo e com o girar sobre o mesmo pode transmitir uma sensação de estabilidade. 
+Aqui é explorado o eixo e com o girar sobre o mesmo, pode transmitir uma sensação de estabilidade. 
 
 Um vídeo que pode transmitir, esta sensação de de eixo afinado é o [vídeo de como transportam tijolos](https://www.youtube.com/watch?v=2XNx_z2il-g), filmado no Bangladesh. 
 
