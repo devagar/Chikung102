@@ -29,7 +29,7 @@ Este exercício, deve ser praticado três a 6 vezes para cada lado. Tendo sempre
 
 Ao outra possibilidade, é pela quietude e relaxamento. 
 
-Uma das posturas, que pode ser utilizada com este intuito, é a postura de recolher a energia vital. 
+Uma das posturas, que pode ser utilizada com este intuito, é a [postura de recolher a energia vital](http://ck-language.s3.amazonaws.com/recolherochi2.jpg). 
 
 Estar nesta postura, requer um timming que varia de praticante para praticante. 
 **Ao manter-se nesta postura, deve procurar o movimento na quietude.** 
