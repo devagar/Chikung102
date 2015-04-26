@@ -12,7 +12,7 @@ Vai ser um tema a continuar a abordar nas próximas aulas.
 
 ## 2
 
-![imagem de cima](semana4-jpg.jpg)
+![imagem de cima](semana4-jpeg.jpg)
 
 Esta aula, foi dedicada a estudar onde o seu espaço começa e acaba.
 
