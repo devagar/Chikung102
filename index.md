@@ -18,6 +18,7 @@ Cada resumo é apresentados em pequenos capítulos. Idealmente, cada um destes c
 + [Semana 1](/aulas/abr2015/semana1.html) 
 + [Semana 2](/aulas/abr2015/semana2.html)
 + [Semana 3](/aulas/abr2015/semana3.html)
++ [Semana 4](/aulas/abr2015/semana4.html)
 
 ## Propostas de prática
 
