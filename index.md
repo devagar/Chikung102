@@ -29,8 +29,8 @@ Cada resumo é apresentados em pequenos capítulos. Idealmente, cada um destes c
 
 ## Artigos relacionados 
 
-+  [Fortalecer a Imunidade - Artigo 1](http://lourencoazevedo.com/2015/03/19/imunidade1.html)
-+  [Fortalecer a Imunidade - Artigo 2](http://lourencoazevedo.com/2015/03/25/imunidade2.html)
-+  [Fortalecer a Imunidade - Artigo 3](http://lourencoazevedo.com/2015/04/10/imunidade3.html)
++  [Fortalecer a Imunidade - Artigo 1](http://devagar.org/2015/03/19/imunidade1.html)
++  [Fortalecer a Imunidade - Artigo 2](http://devagar.org/2015/03/25/imunidade2.html)
++  [Fortalecer a Imunidade - Artigo 3](http://devagar.org/2015/04/10/imunidade3.html)
 
 Boas práticas
