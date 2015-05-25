@@ -8,13 +8,13 @@ A unificação do interior e exterior, como tem vindo a ser estudada na aula é 
 
 O sistema imune, não está relacionado apenas com o fora e dentro, nas também com o cima e baixo, o frente e o trás, a esquerda e a direita. 
 
-Na prática do Chi Kung, todas estas direcções começam por ser revisitadas e relembradas, primeiro uma a uma e depois pelas suas interacções possíveis. No entanto, tal como o homem embriagado é pelo processo de esquecimento ou de alheamento da forma e função que elas efectivamente se manifestam. 
+Na prática do Chi Kung, todas estas direcções começam por ser revisitadas e relembradas, primeiro uma a uma e depois pelas suas interacções possíveis. No entanto, tal como o homem embriagado é pelo processo de esquecimento ou de alheamento da forma e função, que elas efectivamente se manifestam. 
 
 Temos de aprender para depois nos esquecermos. 
 
 Fica o convite para que analisem a vossa prática hoje. 
 
-O que é que adquiriram que já se esqueceram?
+O que é que já adquiriram que já se esqueceram?
 
 Alguma sugestões
 
