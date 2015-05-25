@@ -18,9 +18,9 @@ O que é que adquiriram que já se esqueceram?
 
 Alguma sugestões
 
-+ Relaxar os joelhos sempre que estão de pé
-+ Olhar em frente quando caminham na rua
-+ Procura de espaços ou locais onde as várias direcções estejam disponíveis
++ Relaxar os joelhos, sempre que estão de pé
++ Olhar em frente, quando caminham na rua
++ Procura de espaços, ou locais onde as várias direcções estejam disponíveis
 + Mais energia e resistência
 + Postura mais alinhada
 + …
