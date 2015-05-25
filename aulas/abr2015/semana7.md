@@ -25,4 +25,6 @@ Alguma sugestões
 + Postura mais alinhada
 + …
 
+As partilhas são bem vindas.
+
 Boas práticas.
