@@ -25,6 +25,6 @@ Alguma sugestões
 + Postura mais alinhada
 + …
 
-As partilhas são bem vindas.
+[As partilhas são bem vindas.](mailto:lourenco.azevedo@gmail.com)
 
 Boas práticas.
