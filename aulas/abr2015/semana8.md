@@ -52,6 +52,7 @@ Apliquem pelo menos um dos aspectos referidos na história do cozinheiro Ting.
 Inspirem-se ainda na imagem que foi mostrada na última aula, na construção quer do movimento quer da quietude integrada. 
 
 ![all body](/aulas/abr2015/semana8.jpg)
+
 >Imagem retirada do livro Research of Martial Arts de Janathan Blusteins's 
 
 Boas práticas
