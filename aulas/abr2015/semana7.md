@@ -2,7 +2,7 @@
 layout: default
 ---
 
->Quando um homem embriagado cai de uma carruagem, embora esta possa estar a viajar muito rápido, não morrerá. Ele tem ossos e articulações como outros homens, mesmo assim, estas não ficarão magoadas porque o seu espírito abraça o todo. Ele não sabe que estava em cima do carro, nem sabe que caiu. Vida a morte, alarme e terror, não penetram o seu peito, como tal pode colidir com o que quer que seja sem medo de se magoar.Zhuang Zhi - Cap. 19
+>Quando um homem embriagado cai de uma carruagem, embora esta possa estar a viajar muito rápido, não morrerá. Ele tem ossos e articulações como outros homens, mesmo assim, estas não ficarão magoadas porque o seu espírito abraça o todo. Ele não sabe que estava em cima do carro, nem sabe que caiu. Vida a morte, alarme e terror, não penetram o seu peito, como tal pode colidir com o que quer que seja sem medo de se magoar. **Zhuang Zhi - Cap. 19**
 
 A unificação do interior e exterior, como tem vindo a ser estudada na aula é remetida neste capítulo do [Zhuang Zhi](https://pt.wikipedia.org/wiki/Chuang-Tzu), (Taoista, que se pensa ter vivido entre os anos 369 a.C. e 286 a.C.), a algo mais vasto.
 
