@@ -7,7 +7,7 @@ As suas mãos dançavam, alinhadas com o girar dos ombros e coordenadas com cada
 
 "Ah isto é maravilhoso!" disse o Senhor Wen Hui. "Como uma arte tão comum pode chegar a níveis tão supremos!"
 
-O cozinheiro Ting pousou a faca e respondeu, "O que eu me preocupo é o Caminho e este vai para além da técnica. Quando comecei a cortar touros, tudo o que conseguia ver era a carne do Touro. Demorou-me três anos, até conseguir ver o touro como um todo. Agora, vou e abraço-o como a totalidade do meu espírito e não apenas aquilo que os olhos vêem." 
+O cozinheiro Ting pousou a faca e respondeu, "O que eu me preocupo é o Caminho e este vai para além da técnica. Quando comecei a cortar touros, tudo o que conseguia ver era a carne do Touro. Demorou-me três anos, até conseguir ver o touro como um todo. Agora, vou e abraço-o como a totalidade do meu espírito e não apenas aquilo que os olhos observam." 
 
 "Percepção e compreensão pararam e o espírito move-se livremente. Segue os contornos naturais, revela grandes cavidades, avanço se encontro um vazio, conduzo a faca pelas grandes aberturas e sigo as circunstâncias como elas são. Sem nunca tocar o mais pequeno ligamento ou tendão, muito menos uma articulação principal."
 
@@ -27,7 +27,7 @@ Aqui é pedido que sejam observados vários aspectos que são depois transpostos
 
 **Observação do todo integrado, em vez das suas partes dissociadas**
 
->Quando comecei a cortar touros, tudo o que conseguia ver era a carne do Touro. Demorou-me três anos, até conseguir ver o touro como um todo. Agora, vou e abraço-o como a totalidade do meu espírito e não apenas aquilo que os olhos vêem
+>Quando comecei a cortar touros, tudo o que conseguia ver era a carne do Touro. Demorou-me três anos, até conseguir ver o touro como um todo. Agora, vou e abraço-o como a totalidade do meu espírito e não apenas aquilo que os olhos observam
 
 **Adaptação às circunstâncias e timming** 
 
