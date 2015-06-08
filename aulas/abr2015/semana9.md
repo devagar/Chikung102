@@ -11,7 +11,7 @@ A capacidade de estar presente e em harmonia com a força da gravidade, é tamb�
 
 O nosso potencial, está directamente relacionado com a forma como lidamos com a gravidade. 
 
-Levantar-se todos os dias, é um manifesto à gravidade, assim como deitar-se à noite é uma aceitação da sua importância e de que o corpo necessita de repouso, para no dia seguinte, poder interagir de novo saudavelmente com esta força da natureza. 
+Levantar-se todos os dias, é um manifesto à gravidade, assim como deitar-se à noite, é uma aceitação da sua importância e de que o corpo necessita de repouso, para no dia seguinte, poder interagir de novo saudavelmente com esta força da natureza. 
 
 Nos bebés, o primeiro estágio visível de saúde, é a capacidade de manter a cabeça alinhada e estabilizada enquanto recém nascidos. 
 
@@ -23,7 +23,9 @@ Esta ligação, está directamente relacionada com o sistema nervoso para-simpá
 
 Assim, os primeiros anos de vida são de extrema importância para o desenvolvimento humano - definem fisicamente a relação com a Terra. 
 
-Neste vídeo, temos as várias fases que são necessárias para o bebé rolar no chão. Tomem atenção a vários aspectos: 
+Neste vídeo, temos as várias fases que são necessárias para o bebé rolar no chão. 
+
+Alguns aspectos a ter em conta: 
 
 + O bebé mantém-se sempre em contacto com o solo. Inclusive a cabeça, que não levanta mesmo sobre esforço. 
 + Ao minuto 02:10s, em que com a intenção direccionada para o brinquedo lhe permite virar sem esforço.
@@ -33,7 +35,7 @@ Neste vídeo, temos as várias fases que são necessárias para o bebé rolar no
 
 É na qualidade desta relação com a Terra, que é possível criar movimentos para o exterior. 
 
-Pode-se assim, resumir a interacção com o mundo em dois aspectos. A relação com a Terra - ou um movimento que está sujeito à força da gravidade. E a relação com o Céu ou o movimento que cria uma expressão mais visível no mundo. 
+Pode-se assim, resumir a interacção com o mundo em dois aspectos. A relação com a Terra - pró gravidade ou um movimento que está sujeito à força da gravidade. E a relação com o Céu ou o movimento que cria uma expressão mais visível no mundo - Anti-gravidade. 
 
 Idealmente, esta expressão da relação com o Céu deve estar enraizada. Ou seja, pegar num objecto, falar em público, cozinhar, andar, trabalhar sentado, manter-se de pé e todas as tarefas diárias - devem ter uma relação em primeiro lugar com a Terra.
 
@@ -71,7 +73,7 @@ Assim, existe o Fazer a partir do Fazer e o Fazer a partir do Ser - Este mais nu
 No Zhan Zhuang Chi Kung, as posturas estabelecem o contacto com a Terra de variadas perspectivas. 
 
 As oito posturas principais, permitem que o praticante sinta e vá passo a passo, estabelecendo esse contacto com a Terra e com o seu centro de gravidade. 
-![posturas](aulas/abr2015/posturas.jpg)
+![posturas](/aulas/abr2015/posturas.jpg)
 
 Amy Cuddy investiga sobre linguagem corporal e apresenta uma palestra sobre como as posturas podem ser determinantes na construção da nossas vidas. 
 
@@ -87,7 +89,7 @@ Alternar entre posturas, ficando o tempo necessário até existir a capacidade d
 
 Utilizem esta sequencia 
 
-![posturas](aulas/abr2015/posturas.jpg)
+![posturas](/aulas/abr2015/posturas.jpg)
 
 Ou seja, no sentido dos cinco elementos. 
 
