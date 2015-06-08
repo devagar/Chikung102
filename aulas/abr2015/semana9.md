@@ -1,6 +1,8 @@
 ---
 layout: default
 ---
+# Movimento e pré-movimento
+
 Tal como os peixes são alheios à água, os seres humanos integram a força gravitacional nas suas vidas, ao ponto de ser transparente e passar despercebida.
 
 No entanto, existe uma relação constante do corpo com este aspecto - quer em movimento ou em repouso.
@@ -79,7 +81,7 @@ Assim, podemos compreender, porque os sete níveis do Zhan Zhuang Chi Kung come�
 
 Este princípio, mantém-se ao longo de toda a vida do praticante. 
 
-# Proposta de exercício 1
+## Proposta de exercício 1
 
 Alternar entre posturas, ficando o tempo necessário até existir a capacidade de mudança sem esforço -  A ligação à Terra necessária para dar origem à postura seguinte.
 
@@ -91,11 +93,11 @@ Ou seja, no sentido dos cinco elementos.
 
 Madeira-Fogo-Terra-Metal-Água-Madeira...
 
-# Proposta de exercício 2 
+## Proposta de exercício 2 
 
 Alternar entre posturas aleatoriamente, ficando o tempo necessário até existir a capacidade de mudança sem esforço -  A ligação à terra necessária para dar origem à postura seguinte.
 
-# Proposta de exercício 3
+## Proposta de exercício 3
 
 Entre cada passagem, inserir a postura do Wu-ji e sentir como dessa postura de energia indiferenciada, se pode partir para cada uma das posturas segundo os cinco elementos ou aleatoriamente. 
 
