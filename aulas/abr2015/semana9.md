@@ -73,7 +73,7 @@ Assim, existe o Fazer a partir do Fazer e o Fazer a partir do Ser - Este mais nu
 No Zhan Zhuang Chi Kung, as posturas estabelecem o contacto com a Terra de variadas perspectivas. 
 
 As oito posturas principais, permitem que o praticante sinta e vá passo a passo, estabelecendo esse contacto com a Terra e com o seu centro de gravidade. 
-![posturas](/aulas/abr2015/posturas.jpg)
+![posturas](http://regulares.devagar.org/aulas/abr2015/posturas.jpg)
 
 Amy Cuddy investiga sobre linguagem corporal e apresenta uma palestra sobre como as posturas podem ser determinantes na construção da nossas vidas. 
 
